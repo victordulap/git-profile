@@ -5,7 +5,7 @@
 - ⚡ Love coding using React
 - ⚡ Finished my studies at StepIT academy (2019-2021)
 - ⚡ Ready for challanges!
-- ⚡ Fun fact: I'm passionate about fashion, love going to GYM and playing pool
+- ⚡ Fun fact: I'm passionate about fashion, love going to GYM and playing billiard
 
 ### Connect with me:
 
